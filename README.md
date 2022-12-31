@@ -1,2 +1,2 @@
 # Resolution
-My Resolution Repository
+where i post my hopes and dreams
